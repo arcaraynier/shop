@@ -11,3 +11,5 @@ March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wis
 ..hshssd..
 
 April 23, 2025 - Greeted Mom, Wednesday today, lapit nalang birthday mika, diosko, trabaho trabaho, hay buhay. 
+
+April 28, 2026, - nang Dona bar djm, it's 12:46 am, with manang lyn, nong jerson, mika, keklel, me, nang Donna, and Tito nang donna
