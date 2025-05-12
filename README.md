@@ -6,7 +6,7 @@ bd.
 Its march 11, 2025 today and I have work, i OVERTIME my shift was 12 noon to 9 but i went home around 11pm, eated angels footlong with tita faith and yeah. its overwhelming but you can do it self.
 eee..
  ee ee...
-March 18, 2025 , Sleep with nanay and greeted her, woke up around4:00 she went to church and I have duty. tommorrow is her birthday happy 65th birthday nanay. sensya wla pako gid gift or ano gid..
+March 18, 2025 , Sleep with nanay and greeted her, woke up around4:00 she went to church and I have., duty. tommorrow is her birthday happy 65th birthday nanay. sensya wla pako gid gift or ano gid..
 March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wishing you good health!. its 3:30 am here, may duty pako 6 am karon. I hope indi ko mag overtime. hay buhay...
 ..hshssd...
 
@@ -14,3 +14,5 @@ April 23, 2025 - Greeted Mom, Wednesday today, lapit nalang birthday mika, diosk
 
 April 28, 2025, - nang Dona bar djm, it's 12:46 am, with manang lyn, nong jerson, mika, keklel, me, nang Donna, and Tito nang donna
 April 29, 2025 - its 4:47 am here, kakahaboy ko lg basura, ari di si tita neng sa kwarto ni raymund nagasleep...
+
+May 12, 2025 - Election day, kadto kami ni manang jen sa jollibee upod mc, tas kita namon si peter, orderan tne namon si mika and manang faith jollibee. timing nakita ko si peter nagahulat order. tas after vote kita namon manang che pasulod. then pagwa kami check namonsa  orange kung may pancho pa, wla na ubos na, tas nagpasupermart kami bakal posporo. then vitamins ni gianna then wla sa supermart nga grace then kadto sa kilid palawan nga grace tas, diretso sa gulpi ko kita polvoron bakal ko, 2x 10 pesos tanan tas daw nauhaw ko nag bakal fruit milk tea, 98 pesos, libre ko manang jen and mc tunga cla, then puli tulog then after bugtaw my pamahaw to joe, tas nag kaon ko tas bitin nag bakal ko loaf, kag tinapay sa miracles and manolette, kita ko dason ta emi sa miracles storya gamay, then . puli then nanghakot nong jerson kag peter sa balas kag bato para mabuksan ang pertahan daw preiea kag prea2. then pahuway di sa kwarto with mj and mc.
